@@ -1,6 +1,6 @@
 # JumpLink机场官网地址
 
-最新地址：[quicklinkapp.top](https://super.quicklinkapp.top/#/register?code=h7D76JP2)
+最新地址：[quicklinkapp.top](https://super.quicklinkapp.top/#/register?code=TUyrxZQP)
 
 ## JumpLink介绍
 
